@@ -1,0 +1,2 @@
+# QATEEF
+news , marketing , sales 
